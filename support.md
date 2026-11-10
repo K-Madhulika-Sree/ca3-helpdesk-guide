@@ -1,1 +1,1 @@
-Opens at : 10:00
+Contact: /contact ; Opening hours: 09:00
